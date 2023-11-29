@@ -1,2 +1,2 @@
-# XyineeMD
-Script Bot WhatsApp
+# Cari apa bang ?
+kalo mau sc beli kntl
